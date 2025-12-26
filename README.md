@@ -1,4 +1,4 @@
-# Resolution: Planet 9 disproved by Galactic Dominance Beyond Solar Gravitational Boundary
+# Planet 9: Resolution via Galactic Dominance Boundary
 
 This resolution is designed to meet the requirements of the core indivisible component of the problem. I avoided adding other information that will branch off to other questions/systems. 
 
